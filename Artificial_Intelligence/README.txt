@@ -1,0 +1,1 @@
+you find work done in class and exercises applied to the artificial intelligence section
